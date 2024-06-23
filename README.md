@@ -1,5 +1,5 @@
 # i like penrose.
-hello -  i am penrose-pin (msuru-coder-notgamer)
+hello -  i am penrose-pin (msuru-coder-notgamer), and the alt account of @msuru-coder-gamer
 - i like js, html, css, vbs, bat.
 
 
